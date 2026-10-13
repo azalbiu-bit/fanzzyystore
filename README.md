@@ -1,0 +1,2 @@
+# fanzzyystore
+🚀 Deployed via Bot
